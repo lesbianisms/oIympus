@@ -1,4 +1,6 @@
-![alttext](https://i.ibb.co/LkJDGXX/ezgif-5-db8ac07f21.gif)
-꒰ ◌ ◞  ◟ ꒱ㅤ ***S***ol. or ***Lucille***ㅤ｡ int freely   𓈒 𑂯   c+h ***OK*** unless specified⠀⠀੭    𓈒     ׄ  ⠀read rentry      ⠀꒱ ⠀ **6**teen ! seasian eng + filo **OK!** sign my gb plsplspls ..
-![alttext](https://three.crd.co/assets/images/gallery21/1760c4c6_original.png?v=fb319157)
-int w me plsplspls ![alttext](https://three.crd.co/assets/images/gallery11/e195ef3d_original.png?v=fb319157) i dont bite i swear .. cuddles OK ! i love cuddles eueueu ![alttext](https://three.crd.co/assets/images/gallery32/23b16797.gif?v=fb319157)
+![alttext](https://i.ibb.co/Wvrh27j/Tumblr-l-119602438116760.png)
+![alttext](https://i.ibb.co/TgSM6W0/Tumblr-l-118931350961625.gif)
+౨ৎ　***S***OL.　₊　 ***LUCILLE*** ⠀︵   ⠀fem terms ⠀**16** ⠀𓎠𓎠𓎠　c+h **OK** — pref w2i !⠀⠀☆ ⠀find me at **hyv pjsk** nd **twst area** ⠀^_< ⠀ ⠀**rmking** rentry . .
+![alttext](https://i.ibb.co/2kwTyS4/Tumblr-l-121520830421119.png)
+ ⠀   **[HELP PALESTINE](https://rentry.co/HELP-PALESTINE)** ⠀☆𓂃   ⠀ **[GUESTBOOK](https://polyniigo.123guestbook.com/)**
+![Tumblr_l_121912261133223](https://github.com/girlkissers/girlkissers/assets/169412737/c570014c-347d-4459-baa0-9b4885072ed3)
